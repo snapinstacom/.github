@@ -2,6 +2,11 @@
 
 [Download - Normal Quality](https://dowmate.com)
 
+[Instagram Video Download](https://dowmate.com)
+
+[Instagram Story Download](https://dowmate.com/stories/)
+
+
 
 Instagram has evolved from a simple photo-sharing app into a dynamic social media platform filled with engaging videos, from influencer reels to brand tutorials. But what if you stumble upon a video you absolutely love and want to save it for offline viewing or future inspiration?
 
